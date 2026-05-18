@@ -1,2 +1,0 @@
-# Abhivyakti-Portfolio
-My portfolio
